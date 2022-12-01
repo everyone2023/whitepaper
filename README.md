@@ -2,6 +2,7 @@
 
 * **Time**: Dec. 5th, 17:30
 * **Location**: North Side of the Memorial Union, Tempe Campus
+* **Contact**: [asuvigil@proton.me](mailto:asuvigil@proton.me)
 
 > 欢迎带上电子蜡烛，白纸，海报等 Please bring electric candles, white papers, posters, etc.
 
@@ -16,6 +17,16 @@
 小区居民拍摄的视频则显示，楼里的通道门被锁死，导致他们无法逃生。
 
 当局在情况通报里则表示该小区为“低风险区，居民可以下楼活动”。
+
+On the evening of November 24, a fire broke out in a high-rise residential building in Jixiangyuan Community, Tianshan District, Urumqi, Xinjiang, which has been sealed off for nearly four months. The fire lasted for nearly three hours.
+
+According to a briefing released by the Chinese Communist Party’s official media, CCTV News, the fire was suspected to have been caused by a fire on a power strip, which eventually resulted in 10 deaths and nine injuries.
+
+However, some circulating videos show that after the fire truck arrived at the community, it was trapped by the epidemic prevention and control fence and could not enter the scene.
+
+The video taken by the residents of the community showed that the passage door in the building was locked, making it impossible for them to escape.
+
+In the briefing, the authorities stated that the community is a "low-risk area, and residents can go downstairs for activities."
 
 ### 后续发酵 Follow-up Reactions
 
