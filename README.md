@@ -7,4 +7,28 @@
 
 ## 乌鲁木齐大火 Fire in Urumqi, Xinjiang
 
+11月24日晚，封控了近4个月的新疆乌鲁木齐天山区吉祥苑小区内一栋高层住宅楼发生火灾，大火持续烧了近三个小时。
+
+根据中共官媒央视新闻发布的情况通报，这场火灾是疑因插线板着火引发，最终导致10人死亡，9人受伤。
+
+但一些流传的视频显示，消防车到达小区后，被疫情防控围栏困住，无法进入现场，只能从小区外面远远地往火灾处喷水，但因距离太远根本喷不到。
+
+小区居民拍摄的视频则显示，楼里的通道门被锁死，导致他们无法逃生。
+
+当局在情况通报里则表示该小区为“低风险区，居民可以下楼活动”。
+
+### 后续发酵 Follow-up Reactions
+
+* 11月24日晚，大量新疆居民走上街头。随即，当局宣布“社会面清零”；On the evening of November 24, a large number of Xinjiang residents took to the streets. Immediately, the authorities announced that "the society has been cleared."
+* 11月26日，南京传媒大学学生以“手举白纸”的形式无声抗议，讽刺当局对言论的控制；On November 26, students from Communication University of Nanjing protested silently by "holding up blank paper", satirizing the authorities' control of speech;
+* 11月27日，多地爆发纪念乌鲁木齐死难者的活动，并同时对“动态清零”、“言论控制”等政策发表抗议。其主要标志就是“手举白纸”。抗议地点遍布中国各大城市，其中包括上海乌鲁木齐中路、成都望平街、北京清华大学、北京亮马桥等地。Activities to commemorate the victims in Urumqi broke out in many places, and at the same time protested against policies such as "dynamic zeroing" and "speech control". Its main symbol is "holding a white paper in hand". Protests were held in major cities across China, including Urumqi Middle Road in Shanghai, Wangping Street in Chengdu, Tsinghua University in Beijing, and Liangma Bridge in Beijing.
+
 ## 相关新闻 Related Reports
+
+* BBC: [China Xinjiang: Urumqi rocked by Covid lockdown protests after deadly fire](https://www.bbc.com/news/world-asia-china-63766125)
+* BBC: [China Covid: Protests continue in major cities across the country](https://www.bbc.com/news/world-asia-63771109)
+* Reuters: [Protests erupt in Xinjiang and Beijing after deadly fire](https://www.reuters.com/world/china/huge-covid-protests-erupt-chinas-xinjiang-after-deadly-fire-2022-11-26/)
+
+### 重要信息节点
+
+* 李老师不是你老师 https://twitter.com/whyyoutouzhele
