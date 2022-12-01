@@ -5,6 +5,7 @@
 * **Contact**: [asuvigil@proton.me](mailto:asuvigil@proton.me)
 
 > 欢迎带上电子蜡烛，白纸，海报等 Please bring electric candles, white papers, posters, etc.
+
 > 为了保护您的个人信息，请佩戴口罩
 
 ## 乌鲁木齐大火 Fire in Urumqi, Xinjiang
