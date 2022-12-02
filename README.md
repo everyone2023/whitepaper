@@ -4,6 +4,8 @@
 * **Location**: North Side of the Memorial Union, Tempe Campus
 * **Contact**: [asuvigil@proton.me](mailto:asuvigil@proton.me)
 
+![](poster_dec5.jpg)
+
 > 欢迎带上电子蜡烛，白纸，海报等 Please bring electric candles, white papers, posters, etc.
 
 > 为了保护您的个人信息，请佩戴口罩
