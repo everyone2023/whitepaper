@@ -2,7 +2,7 @@
 
 * **Time**: Dec. 5th, 17:30
 * **Location**: North Side of the Memorial Union, Tempe Campus
-* **Contact**: [asuvigil@proton.me](mailto:asuvigil@proton.me)
+* **Contact**: [asu_chinese_protest@ins](https://www.instagram.com/asu_chinese_protest/) [asuvigil@proton.me](mailto:asuvigil@proton.me)
 
 ![](poster_dec5.jpg)
 
